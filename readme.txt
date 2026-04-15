@@ -1,1 +1,1 @@
-Hello Internship Welcome to tech World 
+Hello Interns welcome to Tech World
